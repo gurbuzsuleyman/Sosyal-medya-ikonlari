@@ -1,2 +1,2 @@
 # Sosyal-medya-ikonlari
-<a>https://suleymangurbuz.ml/sosyal-medya-ikonlari/<a>
+<a href="#">I Forgot My Password</a>
